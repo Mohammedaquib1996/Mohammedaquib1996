@@ -3,7 +3,7 @@
 **Technical Support Specialist | IT Support Pro | Problem Solver**  
 📍 Bangalore, India  
 📧 mohammedaquib236@gmail.com | 📱 +91 80059 23733  
-🔗 [LinkedIn](https://www.linkedin.com/in/your-link) • [GitHub](https://github.com/your-username)
+🔗 [LinkedIn](https://www.linkedin.com/in/mohammed-aquib-23b2b7199) • [GitHub](https://github.com/your-username)
 
 ---
 
@@ -66,7 +66,7 @@ Let’s connect and see how I can help your team run smoother!
 
 📧 mohammedaquib236@gmail.com  
 📱 +91 80059 23733  
-🔗 [LinkedIn](https://www.linkedin.com/in/your-link) • [GitHub](https://github.com/your-username)
+🔗 [LinkedIn](https://www.linkedin.com/in/mohammed-aquib-23b2b7199) • [GitHub](https://github.com/Mohammedaquib1996)
 
 ---
 
